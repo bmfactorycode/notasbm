@@ -20,7 +20,9 @@ Reels mostrando funcionalidades do calendario
 Dia 3:
 =
 Carrosel 5 sinais que voce pode organizar seus estudos 
-Storys -> 
+Storys -> perdido para a prova a enquete [ mais alguem ai se sentindo assim ]
+Storys -> Po entao eu tambem tinha muita dificuldade de estudar ate conhecer o app bmnotes, clique no link e teste gratis
+Reels (desenho) 
 
 
 
