@@ -3,8 +3,6 @@
 Comeco 17/11
 Final 18/12
 
-
-
 ---
 Dia 1:
 =
@@ -24,6 +22,27 @@ Storys -> perdido para a prova a enquete [ mais alguem ai se sentindo assim ]
 Storys -> Po entao eu tambem tinha muita dificuldade de estudar ate conhecer o app bmnotes, clique no link e teste gratis
 Reels (desenho) 
 
+Dia 4: 
+=
+Reels -> existe um jeito mais simples de estudar trasicao de mesa baguncada para bm notes
+(usar allana ou Mix por IA) gancho e se organizar seus estudinhos e tarefinhas fosse muito mais facil Chamada para acao : conheca o bm notes, link  na bio 
+Storys ->Repost Dela
+Carossel funcoes (calendario)
+Storys engracado
+
+Dia 5
+=
+Reels --> nanda
+Storys --> Nanda
+Carossel funcoes (mostrar plugins)
+Storys engracado
+
+Dia 6 
+= 
+Reels ->Diego
+Storys ->Diego
+Carossel 
+Storys engracado
 
 
 
