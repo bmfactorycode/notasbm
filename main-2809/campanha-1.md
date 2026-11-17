@@ -41,8 +41,31 @@ Dia 6
 = 
 Reels ->Diego
 Storys ->Diego
-Carossel 
+Carossel COnheca o bm notes : seu novo espaco de estudo academico gancho acesse e experimente
 Storys engracado
 
+Dia 7 
+=
+Reels -> Influencer Organizando minha semana de provas gravacao de tela demosntrado organizacao e anotacao no app gancho senmana de provas chegando olha isso aqui 
+chamada para acao , envie para seu amigo que ta surtando 
+Storys -> Influencer  
+Pedir para influenciadores repostarem 
 
+Dia 8
+=
+Post -> Mais bagunca menos foco, estdar muito diferente de estar organizado
+Reels -> AAllaannaa ou Nanda 
+Repost Mazur reels meninas
+Reels coisa que todo universitario entende , video engracao de situacoes com provas trabalhos etecetera  gancho do post sera , essa semana vou ser organizado ;D eu tambem->
+corta para o desorganizado , chamada para acao , marca seu amigo desorganizado 
 
+Dia 9
+= 
+Reels video rotina como organizo com bm notes mostrar o app no celular em rotina dia a dia lista mercado e treino ganmcho como organizo minha rotina com bm bnotes
+chamada para acao , experimente em seu celular ,
+Storys 
+Sua próxima anotação começa aqui
+Criativo de conversão com mockup do aplicativo, benefício central e chamada para ação.
+Gancho para o post
+“Suas ideias merecem um lugar melhor.”
+Chamada para ação: Acesse notes.bmfactorycode.com.br.
